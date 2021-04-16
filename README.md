@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 📫 How to reach me: stacyo23@yahoo.com
+
 😄 Pronouns: she/her
 
 <!--
